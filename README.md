@@ -1,1 +1,2 @@
 # Laba1Shampyr
+# Amogus
